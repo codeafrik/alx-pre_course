@@ -1,1 +1,1 @@
-My second readme
+My coding jopurney is going on smoothly.
